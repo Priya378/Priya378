@@ -1,2 +1,2 @@
-### Check this repository :blush:
-[![HitCount](http://hits.dwyl.com/Priya378/Priya378.svg)](http://hits.dwyl.com/Priya378/Priya378)
+### Hello!! :blush:
+![](https://komarev.com/ghpvc/?username=Priya378&label=Profile+Views)
